@@ -40,3 +40,7 @@ Features:
 Now you can use firmware.bin.
 
 Check this link please. It's simple... Kinda
+
+https://www.youtube.com/live/yv6LrR6TtKw?feature=shared
+
+After all, no one wants this i guess so np :)
